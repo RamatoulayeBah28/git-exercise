@@ -1,4 +1,4 @@
-# Chapter 1 
+# Introduction 
 In the small town of Maplewood, there was a hidden secret that only a few knew about. This secret was a game called "The Quest of Shadows. " It was not just any game; it was a life-sized adventure that blended mystery, excitement, and teamwork. Young people from all over the town gathered to try their luck in this thrilling hunt. 
 
 Emma, a bright fifteen-year-old with a curious mind, was the first to hear about the game. She loved puzzles and mysteries, and the thought of an adventure sent shivers of excitement down her spine. One day, while hanging out with her friends at the local café, she shared her discovery. 

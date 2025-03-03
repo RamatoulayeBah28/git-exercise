@@ -1,4 +1,4 @@
-# Chapter 3
+# Will She Survive ?
 Emma climbed onto the edge of the fountain and reached for the owl. To her surprise, it had a small compartment. She opened it to find another clue inside. 
 
 “Follow the path where tires squeal, down the lane, the end is real. Find the place with games galore, your next surprise lies in store. ”

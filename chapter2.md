@@ -1,4 +1,4 @@
-# Chapter 2
+# Emma's Adventure
 “Welcome, brave Seekers! Your quest begins with the first clue. Look for the place where stories dwell. The answer lies within, but it won’t be as easy as it seems. Good luck! ”
 
 They looked at each other with wide eyes. “What does it mean? ” Jake asked, scratching his head. 
