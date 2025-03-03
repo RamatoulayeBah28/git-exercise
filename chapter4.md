@@ -1,4 +1,4 @@
-# Chapter 4
+# Conclusion
 
 “You did it! ” a voice boomed, and they turned around to see an older woman smiling at them. “You’ve earned the gem of friendship, and it signifies your teamwork and adventure. ”
 

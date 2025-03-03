@@ -1,4 +1,4 @@
-# Chapter 1
+# Introduction
 
 In the small town of Maplewood, there was a hidden secret that only a few knew about. This secret was a game called "The Quest of Shadows. " It was not just any game; it was a life-sized adventure that blended mystery, excitement, and teamwork. Young people from all over the town gathered to try their luck in this thrilling hunt.
 

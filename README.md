@@ -1,6 +1,6 @@
 # Title
 
--   [Chapter 1](chapter1.md)
--   [Chapter 2](chapter2.md)
--   [Chapter 3](chapter3.md)
--   [Chapter 4](chapter4.md)
+-   [Introduction](chapter1.md)
+-   [Emma's Adventure](chapter2.md)
+-   [Will She Survive ?](chapter3.md)
+-   [Conclusion](chapter4.md)
